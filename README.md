@@ -1,6 +1,12 @@
 # Deep Web Link 2025
 Deep Web Link Directoy - Links - Darknet - 2025 Worked
 
+http://w6z5b3dqzos4wmsh725hjhdu3uzuxzcweewkilyjsyjrvyjxngjmoeqd.onion/
+http://w6z5b3dqzos4wmsh725hjhdu3uzuxzcweewkilyjsyjrvyjxngjmoeqd.onion/
+http://w6z5b3dqzos4wmsh725hjhdu3uzuxzcweewkilyjsyjrvyjxngjmoeqd.onion/
+http://w6z5b3dqzos4wmsh725hjhdu3uzuxzcweewkilyjsyjrvyjxngjmoeqd.onion/
+http://w6z5b3dqzos4wmsh725hjhdu3uzuxzcweewkilyjsyjrvyjxngjmoeqd.onion/
+http://w6z5b3dqzos4wmsh725hjhdu3uzuxzcweewkilyjsyjrvyjxngjmoeqd.onion/
 
 # Website Status Tracker
 
