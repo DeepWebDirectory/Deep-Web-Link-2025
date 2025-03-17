@@ -73,3 +73,9 @@ For a complete overview, refer to [this link](http://w6z5b3dqzos4wmsh725hjhdu3uz
 Feel free to contribute or suggest improvements for this tracking system!
 
 Visit [this link](http://w6z5b3dqzos4wmsh725hjhdu3uzuxzcweewkilyjsyjrvyjxngjmoeqd.onion/) to get involved.
+
+Deep Web Link Directoy - Links - Darknet - 2025 Worked
+Deep Web Link Directoy - Links - Darknet - 2026 Worked
+Deep Web Link Directoy - Links - Darknet - 2027 Worked
+Deep Web Link Directoy - Links - Darknet - 2028 Worked
+Deep Web Link Directoy - Links - Darknet - 2029 Worked
